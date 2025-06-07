@@ -3,6 +3,10 @@
 ## English
 Please add your favorite songs to this list, only Metal.
 
+1. [Falling In Reverse - "God Is A Weapon (feat. Marilyn Manson)"](https://www.youtube.com/watch?v=xqJurrQKNdE)
+2. [Ghost - Satanized](https://www.youtube.com/watch?v=mGR2M2mBJXU)
+3. [Mushroomhead - Qwerty](https://www.youtube.com/watch?v=1JZGFjufJEY))
+
 ## Español
 Por favor agrega tus canciones favoritas a esta lista, solo Metal.
 
